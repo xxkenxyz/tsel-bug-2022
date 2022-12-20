@@ -1,2 +1,4 @@
-# tsel-bug-2022
-intinya bug cok wkwk 
+BUG SUDAH DI ENCRP YAAA KALAU MAU EEMAIL SAYA DI dev@xxken.xyz
+
+
+GRATISSSSS
